@@ -1,0 +1,1 @@
+App idea from https://dribbble.com/shots/17421907-Finance-App-Mobile-app
